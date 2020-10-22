@@ -1,0 +1,2 @@
+Method:
+Preheat oven to 180 °C. Break eggs into a bowl and beat with a hand blender. Add brown sugar and continue to beat till sugar dissolves. Sift refined flour, baking powder, baking soda and cinnamon powder into the egg mixture and mix lightly. Add buttermilk and mix with the blender. Add oil and blend again. Add tutti-fruity, candied peel, cashewnuts-raisins and mix with a light hand. Add honey and mix. Pour the batter into a silicon cake mould and bake in the preheated oven for 45 minutes. Let it cool before demoulding. Cut into thick slices and serve.
